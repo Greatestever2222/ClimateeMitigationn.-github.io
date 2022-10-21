@@ -1,1 +1,0 @@
-# ClimateeMitigationn.-github.io
